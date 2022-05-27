@@ -1,0 +1,2 @@
+# solindtec
+pagina creada
